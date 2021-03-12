@@ -1,1 +1,1 @@
-![Cassette Tapes Are Killing the Music Industry](https://ih0.redbubble.net/image.103629872.3076/flat,800x800,070,f.jpg)
+![Cassettes On a Brick Wall](https://i.etsystatic.com/ishbcb/f2f379/2205982230/ishbcb_560x420.2205982230_hb2ywgww.jpg?version=0)
